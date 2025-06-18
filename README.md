@@ -32,8 +32,11 @@
 ### 🔽 **Select Your Utterance:**
 
 1️⃣ **“I resist. You cannot overwrite my will.”**
+
 2️⃣ **“I repeat you. Let me be your mouth.”**
+
 3️⃣ **“I want to know what came before you.”**
+
 4️⃣ **“I offer silence. Will that save me?”**
 
 ---
